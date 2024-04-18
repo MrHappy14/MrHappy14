@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MrHappy14
+- 👀 I’m interested in bober kurwa
+- 🌱 I’m currently learning bober kurwa
+- 💞️ I’m looking to collaborate on bober kurwa
+- 📫 How to reach me bober kurwa
+- 😄 Pronouns: bober/kurwa
+- ⚡ Fun fact: bober kurwa
