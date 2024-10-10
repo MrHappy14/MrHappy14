@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MrHappy14
-- 👀 I’m interested in bober kurwa
-- 🌱 I’m currently learning bober kurwa
-- 💞️ I’m looking to collaborate on bober kurwa
-- 📫 How to reach me bober kurwa
+- 👀 I’m interested in cheese
+- 🌱 I’m currently learning about Gouda
+- 💞️ I’m looking to collaborate on Camembert
+- 📫 How to reach me: not
 - 😄 Pronouns: Albert_heijn/tasje
-- ⚡ Fun fact: bober kurwa
+- ⚡ Fun fact: Cheese is nice
