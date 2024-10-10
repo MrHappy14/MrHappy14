@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning bober kurwa
 - 💞️ I’m looking to collaborate on bober kurwa
 - 📫 How to reach me bober kurwa
-- 😄 Pronouns: bober/kurwa
+- 😄 Pronouns: Albert_heijn/tasje
 - ⚡ Fun fact: bober kurwa
